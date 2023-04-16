@@ -8,7 +8,9 @@
 - 왜냐하면 좋은 책에서 얻을 수 있는 가치와 읽지 않는 책을 서로 나누며 독서를 중심으로 책을 나누는 커넥션을 구성할 수 있기 때문이죠!
 
 ---
-| <img src="https://avatars.githubusercontent.com/u/97106032?v=4" width=200>  | <img src="https://avatars.githubusercontent.com/u/108975398?v=4" width=200> | <img src="https://avatars.githubusercontent.com/u/39407635?v=4" width=200>  | <img src="https://avatars.githubusercontent.com/u/114155215?v=4" width=200> | <img src="https://avatars.githubusercontent.com/u/73868968?v=4" width=200> | <img src="https://avatars.githubusercontent.com/u/71758542?v=4" width=200> | <img src="https://avatars.githubusercontent.com/u/82270058?v=4" width=200> |
+
+
+https://user-images.githubusercontent.com/39407635/232315261-69545593-13ef-46b7-8ce1-018ded191336.mp4
 
 
 ---
